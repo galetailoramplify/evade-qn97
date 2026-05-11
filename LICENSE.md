@@ -1,4 +1,4 @@
-#  
+#  Experience ink game like never before with smart Scripts for ink game, the #1 Script. Includes auto-farm and esp for unbeatable performance.
 
 
 
